@@ -1,1 +1,1 @@
-# New-Generation-of-Smart-Home
+# New-Generation-of-Smart-Home (on progress)
